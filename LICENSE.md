@@ -1,4 +1,4 @@
-# 
+# Natif QuickBooks plugins pour Mac OS | Premium QuickBooks plugins pour PC Windows. Avec facturation et réorganisation des pages — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
